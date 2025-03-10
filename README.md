@@ -1,8 +1,7 @@
-- 👋 Hi, I’m @Jeevith-D
+- 👋 Hi, I’m @Jeevith-T
 - 👀 I’m interested in automobile industry
 - 🌱 I’m currently learning autocad,c programming,g and m code
-- 💞️ I’m looking to collaborate on bmw mahindra audi any german company
-- 📫 you can reach through instagram(@mr_immortal_6),linkdin
+- 📫 you can reach through instagram(@mr_immortal_6),linkdin(Jeevit-t)
 
 
 
